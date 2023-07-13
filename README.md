@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @hasanuzelgok
+- 🌱 I’m currently learning cybersecurity from ground zero
